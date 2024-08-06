@@ -5,4 +5,4 @@ Me chamo GeovanaSo3
 - E trabalhando em certos projetos
 - Gosto de usar esse espaço para compartilhar meus projetos ja desenvolvidos..
 
-- ### você pode entrar em contato comigo através de:
+- ### Obrigada por acessar meu perfil...
